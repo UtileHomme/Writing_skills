@@ -31,6 +31,53 @@ the best books transfer a part of the author's philosophy into your own head
 - They find little reward in the necessarily tedious chores of data-gathering and analysis
 - They choose not to take the hard roads to the frontier, over which the rest of us, the lesser intellectual toilers, must travel
 
+- Some of them may have only an ephemeral interest and become a historical curiosity, while others last and become part of our active vocabulary
+
+- Advertise our presence
+
+- Interface with
+
+- Anger simmers and seethes and threatens to interrupt
+
+// Reference - https://medium.com/the-mission/5-things-i-had-to-give-up-to-be-successful-a7b076f3d859
+
+- An uncomfortable but powerful truth that took most of my 20's to internalize
+- There's an opportunity cost to everything worthwhile in life
+
+- When I was in college, there was a unianimously agreed upon definition of what success looked like.
+
+- While it wasn't expicitly stated, it was implied through people's conversation, behaviours and decisions
+
+- This is one of the most difficult things to give up because it is deeply embedded in our cultural narratives that it becomes the standard
+by which we measure our lives
+
+- Even as entrepreneurs we have collectively agreed that fame and fortune are the markers of success.
+
+- Gambling on the uncertainity of my entrepreneurial path seemed like a better bet than the supposed guarantees that came with a steady paycheck.
+
+- I figured building of body of work would be far more valuable than to keep adding to my resume of failures
+
+- In the grand scheme of things, their judgement and approval was essentially meaningless
+
+* In the grand scheme of things
+- in the long term; in the complete picture of something
+Eg - I know you are worried about getting a bad grade on this test, but you're such a great student that I doubt it will matter in the grand scheme of things.
+
+- An ex or two that pullled the rug out from under us and our self-worth
+
+* pull the rug out (from under someone)
+- to make someone or someone's plans fall through; to upset someone's plans
+Eg - Don pulled the rug out from under me in my deal with Bill Franklin
+
+- We've lost people dear to us, keenly feeling the fragility of life
+
+- By saying no to everything that's not aligned with your essential priorities, you make space for what it is.
+
+- Just make sure, the juice is worth the squeeze
+
+* juice is worth the squeeze
+- make sure what you are doing and striving for is going to be worth the sacrifices you will have to make along the way
+
 
 
 
