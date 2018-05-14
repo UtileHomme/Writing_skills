@@ -79,6 +79,49 @@ Eg - Don pulled the rug out from under me in my deal with Bill Franklin
 - make sure what you are doing and striving for is going to be worth the sacrifices you will have to make along the way
 
 
+ - By "beginning with the end in mind", Rowling was able to direct and position the first book much differently
+
+- People with high "self-efficacy" and internal locus of control radically outperform others
+
+** Self-efficacy = your belief in your own ability to achieve your goals. Think “confidence.”
+
+** Internal locus of control = a belief that you, not external circumstances, determine the outcomes of your life.
+
+** External locus of control = a belief that factors outside of you determine the outcomes of your life.
+
+- Humans are such funny critters.
+** critters - a living creature/animal
+
+- We were, not long back, roaming in the jungles, where no time-tables existed, no e-mails needed reply within the hour and no deadline could lead to the next acopalypse.
+
+- We seem to live in a world where everybody is always certain and nobody is willing to concede that they might be wrong
+
+- That said, more often than not, the issue lies in our inability to humbly accept that we don't know and can't know everything; that, often, we are wrong
+
+- If we add in the complexity brought on as a result of our interactions with the world through the systems and ideologies we have in place, it's even more unlikely that we have complete knowledge
+
+- In some ways, if we don't have a fully formed opinion, it makes sense to look toward the ideologies, groups, and people who we most generally identify with because there is already a proven track record of alignment
+
+- It's better to not have an opinion than to naively pursue someone's else
+
+- At any given point, there's only so much information we can make sense of. On a daily basis, there will be things we don't understand. If they aren't relevant, it's okay not to know. If they are, it's better to take time to think.
+
+- This may seem fairly intuitive, and yet, the vast majority of people rarely find themselves comfortable enough to be at ease with not knowing. Instead, they recite from memory whatever has been ingrained into their mind.
+
+- Our real selves are vastly more interesting that the pretend selves we adopt for others' consumption
+
+- The real you may not be everybody's cup of tea, but then, that's why Baskin Robbin has 31 flavours of ice cream. Tastes vary.
+
+- It doesn't matter what flavour you are, but it does matter that your flavour contains quality
+
+- If we are ever to achieve some semblance of personal actualization, we need to stop being afraid.
+** semblance - the outward appearance or apparent form of something, especially when the reality is different
+
+- Embrace who you are and craft a winning combination around your quirks,idiosyncrasies and true self.
+
+- To "allay" this existential dread, goverments and foundations did not address inequality or exploitation
+** existential - relating to human existence
+
 
 
  ?>
