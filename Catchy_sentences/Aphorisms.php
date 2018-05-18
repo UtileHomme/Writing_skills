@@ -44,3 +44,9 @@
 
 - I believe it is our flaws that make us interesting, the backgrounds, the hardships
 - Jane Green
+
+- The early morning has gold in its mouth
+- Benjamin Franklin
+
+- Either you run the day or the day runs you
+(Jim Rohn)

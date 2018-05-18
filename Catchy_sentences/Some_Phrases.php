@@ -122,6 +122,46 @@ Eg - Don pulled the rug out from under me in my deal with Bill Franklin
 - To "allay" this existential dread, goverments and foundations did not address inequality or exploitation
 ** existential - relating to human existence
 
+- Morning and evening routines prime you for success
 
+- Many people forget that morning hours leading up to mid-day are enormously important - that these hours form the foundation of the entire day
+
+- These statistics should prompt all rationalists to sound the proverbial tocsin with unrelenting fury
+** proverbial - widely known or spoken of
+** tocsin - alarm bell
+
+- These words sound down through the years, a tocsin awakening us to that most grievous of failures - the loss of nerve
+
+- A man who will, at best, be remembered as the impetus for a luminous grief memoir couldn't help but neg her.
+
+- This was most excellent
+
+- I have found myself overly critical of his work in the past, possibly due to the fact that he's so well known, but I feel it's more been a fault on my end
+
+I wanted to share some of the things that really hit home with me
+
+** hit home - to be fully understood by or strongly affect or resonate with someone
+
+- Just like IT is, at heart, a disturbing coming-of-age story, The Shining was an impeccable tale of extreme cabin fever with a hefty dose of "the destructive nature of alcoholism".
+
+** coming of age - the age or occasion when one formally becomes an adult.
+
+- When you break it down like that, the supernatural elements actually seem to take a backseat to the very real horror of what it's like living with someone struggling through addiction
+
+- I'm grateful my previous experiences with his wordier novels didn't deter me from finally choosing to read this, as it's a gem of a book and a classic in it's genre.
+
+- Highly recommend to any other below-the-rock dwellers who may not have happened across this one
+
+** below/under-the-rock - being oblivious or ignorant to what happens in the outside world
+
+- Terrible events occur at an isolated hotel in the off season, when a small boy with psychic powers struggles to hold his own against the forces of evil that are driving his father insane
+
+- At some point, you have to grow up and snap out of this false sense of reality
+
+- It is also likely you aren't maximizing your potentail
+
+- When time is thin and stakes are high, one of the most important skills to have as an entrepreneur is the ability to say no to things that don't align with your true properties
+
+- 
 
  ?>
